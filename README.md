@@ -9,7 +9,7 @@
 - 💼 Job interests: Product Specialist, Product Manager, Product Research Analyst, Technical Content Writer (Intern or Junior level; freelance, contract or full-time).
 - 📫 How to reach me ...
 - 😄 Pronouns: He/HIm
-- ⚡ Fun fact: Alumni of **Alshool Africa's School of Product**, Class of 2024
+- ⚡ Fun fact: I'm an Alumni of **Alshool Africa's School of Product**, Class of 2024
 
 <!---
 ehizotalks/ehizotalks is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
